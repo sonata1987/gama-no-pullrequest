@@ -18,4 +18,4 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+Estou achando o curso excelente e aprendendo muitooooo!!!!! obrigado GAMA!!!!!
